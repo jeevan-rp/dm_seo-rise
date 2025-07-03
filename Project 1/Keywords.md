@@ -1,4 +1,4 @@
-1.Primary Keywords:
+# 1.Primary Keywords:
 
 low cost online courses Tamil Nadu
 
@@ -21,7 +21,7 @@ women empowerment training Tamil Nadu
 free online courses for transgenders in India
 
 
-2. Local + Language-Specific SEO Tags:
+# 2. Local + Language-Specific SEO Tags:
 
 Tamil online courses
 
